@@ -131,8 +131,8 @@ Electronics leads as the top revenue-generating category.
 
 If you found this project useful, feel free to connect or reach out with feedback!
 
-**LinkedIn:** [Add your LinkedIn URL]
-**Email:** [Add your email]
+**LinkedIn:** https://www.linkedin.com/in/dhiren-solanki-20b2bb313/
+**Email:** [uzumakidhiren4619@gmail.com]
 
 ---
 
